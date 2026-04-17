@@ -1,7 +1,7 @@
 Ru/Eng 
 Хихи
 
-[url=https://postimg.cc/kB5FTgLD][img]https://i.postimg.cc/kB5FTgLD/IMG-0353.png[/img][/url]
+https://i.postimg.cc/dt2Ht7BR/IMG-0353.png
                                 the art by me
 
 C+H ✅ W2I ✅
