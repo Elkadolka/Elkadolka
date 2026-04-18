@@ -1,11 +1,10 @@
-                              Ru/Eng 
-                              Хихи
+Ru/Eng 
+Хихи
                               
-                              ╮(╯-╰)╭               
-                              
-                              C+H ✅ W2I ✅
+ ╮(╯-╰)╭ 
+ C+H ✅ W2I ✅
                           
-                              I'm an antinatalist.
+I'm an antinatalist.
 
 ## Social:
 [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/topgashish) 
